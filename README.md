@@ -1,0 +1,1 @@
+# rivalcoins-airdrop
